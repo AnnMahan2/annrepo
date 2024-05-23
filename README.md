@@ -1,1 +1,1 @@
-The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
+Despite their limitations, 18th-century roads played a crucial role in connecting communities, facilitating trade and travel, and shaping the economic, social, and cultural landscape of the time.
