@@ -1,1 +1,1 @@
-The construction of canals and railways in the 19th century provided alternatives to road transportation for long-distance travel and freight transport, reducing reliance on traditional road networks.
+The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
