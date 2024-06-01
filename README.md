@@ -1,1 +1,1 @@
-The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
+Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
