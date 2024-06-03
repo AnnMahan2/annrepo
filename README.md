@@ -1,1 +1,1 @@
-Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
+The construction of the Great Ocean Road in Australia, completed in 1932, is considered one of the world's most scenic coastal drives, attracting tourists and travelers from around the globe.
