@@ -1,1 +1,1 @@
-The introduction of the first automated toll collection systems in the 20th century, such as electronic toll tags and automatic toll booths, improved efficiency and convenience for drivers on toll roads and bridges.
+The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
