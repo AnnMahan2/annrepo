@@ -1,1 +1,1 @@
-The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
+The expansion of colonial empires in the 19th century spurred road construction in colonies and territories, often to facilitate the extraction of natural resources and the movement of troops and supplies.
