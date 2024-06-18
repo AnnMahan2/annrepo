@@ -1,1 +1,1 @@
-The expansion of postal services and courier networks in the 19th century relied on well-maintained roads for the timely delivery of mail and packages between towns and cities.
+The 19th century saw significant improvements in road infrastructure, including the widespread adoption of macadam roads, which consisted of compacted layers of crushed stone and gravel.
