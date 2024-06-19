@@ -1,1 +1,1 @@
-The 19th century saw significant improvements in road infrastructure, including the widespread adoption of macadam roads, which consisted of compacted layers of crushed stone and gravel.
+Despite their limitations, 18th-century roads played a crucial role in connecting communities, facilitating trade and travel, and shaping the economic, social, and cultural landscape of the time.
