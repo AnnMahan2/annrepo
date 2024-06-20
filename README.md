@@ -1,1 +1,1 @@
-Despite their limitations, 18th-century roads played a crucial role in connecting communities, facilitating trade and travel, and shaping the economic, social, and cultural landscape of the time.
+The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
