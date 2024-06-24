@@ -1,1 +1,1 @@
-The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
+The first modern turnpike, the Great North Road in England, was established in the 18th century, featuring improved surfacing and regular maintenance funded by tolls.
