@@ -1,1 +1,1 @@
-The construction of transcontinental highways and national road networks in the 19th century fostered economic integration, regional development, and cultural exchange across diverse landscapes and communities.
+Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
