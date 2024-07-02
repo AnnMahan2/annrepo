@@ -1,1 +1,1 @@
-The widespread adoption of road signs, lane markings, and traffic signals in the 20th century standardized communication and navigation for drivers, enhancing safety and reducing accidents on roads.
+The expansion of colonial empires in the 19th century spurred road construction in colonies and territories, often to facilitate the extraction of natural resources and the movement of troops and supplies.
