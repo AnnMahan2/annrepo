@@ -1,1 +1,1 @@
-The introduction of steam-powered traction engines and early automobiles in the late 19th century posed new challenges and opportunities for road development, as these vehicles required smoother and more durable surfaces.
+The rise of urbanization and suburbanization in the 20th century spurred the construction of feeder roads, arterial routes, and ring roads to accommodate increased traffic and population growth in cities and metropolitan areas.
