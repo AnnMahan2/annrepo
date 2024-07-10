@@ -1,1 +1,1 @@
-The rise of urbanization and suburbanization in the 20th century spurred the construction of feeder roads, arterial routes, and ring roads to accommodate increased traffic and population growth in cities and metropolitan areas.
+Horse-drawn stagecoaches were a popular form of long-distance transportation on 18th-century roads, offering scheduled service between major towns and cities, albeit with cramped and uncomfortable accommodations for passengers.
