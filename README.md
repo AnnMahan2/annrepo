@@ -1,1 +1,1 @@
-The construction of the Golden Gate Bridge in San Francisco in 1937 marked a milestone in bridge engineering, featuring a suspension design that allowed for the efficient and safe passage of vehicles over long spans.
+The 19th century saw the introduction of modern road-building machinery and equipment, including steam rollers, road graders, and stone crushers, which improved efficiency and quality in road construction projects.
