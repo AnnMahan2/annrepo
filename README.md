@@ -1,1 +1,1 @@
-Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
+The construction of the Golden Gate Bridge in San Francisco in 1937 marked a milestone in bridge engineering, featuring a suspension design that allowed for the efficient and safe passage of vehicles over long spans.
